@@ -1,0 +1,2 @@
+# premium-lapidary-facet-001-lapidary-faceting-gemstone-c
+Tired of staring at blank walls in your lapidary workshop? Bring the precision and beauty of gem cutting to life with this stunning digital art piece of a faceting machine.  This artwork solves the pain of lacking physical space or budget for a real faceting machine by offering a visually inspiring alternative. It transforms any workspace into a la
